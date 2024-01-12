@@ -1,0 +1,1 @@
+Hi, My name is Leon Tan, and I am currently a fourth-year undergraduate student at the University of Chicago, majoring in economics and data science. In addition, I am enrolled in our school's four-plus-one program, pursuing a Master of Science in Applied Data Science along with my undergraduate studies, with an anticipated graduation in June of 2025.
